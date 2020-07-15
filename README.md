@@ -1,2 +1,2 @@
 # BLF-Bot
-<b>NAB ˅</b>
+<b>OK</b>
