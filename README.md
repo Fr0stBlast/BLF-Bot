@@ -1,2 +1,2 @@
 # BLF-Bot
-<b>FAGGOT ˅</b>
+<b>NAB ˅</b>
